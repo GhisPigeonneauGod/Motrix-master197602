@@ -2,7 +2,7 @@
 
 Motrix-Master 197602 Part B
 
-Motrix-Master Part 1on B Motrix Version Finale No Rebuy Non connected Web on Motrix.html at validated in setting of your browser, download, parameter, accept the files non secure to validate
+Motrix-Master Part 2on B Motrix Version Finale No Rebuy Non connected Web on Motrix.html at validated in setting of your browser, download, parameter, accept the files non secure to validate
 
 Two Versions supplementary can been dowload The First of them is bigger and special Djghis.free.fr at https://ghis.freeboxos.fr:32563/share/J587JPqAha2urXv5/Motrix-master1.9.770OG-MITOrionweb.zip
 
